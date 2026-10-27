@@ -15,7 +15,7 @@
 
 星辰VPN注册入口、套餐详情及账号管理功能可通过以下入口查看。
 
-[星辰VPN官网注册入口](https://xc1.luniu8.com/?code=K6FEbDcS)
+[星辰VPN官网注册入口](https://a.wwaann.com/?s=xcvpn)
 
 如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 
@@ -530,7 +530,7 @@ YouTube 的播放体验主要取决于网络带宽、连接延迟、丢包率和
 
 如果你正在寻找星辰VPN官网、星辰VPN注册入口或星辰VPN订阅配置相关信息，可以通过以下入口查看当前套餐、账户注册方式和服务说明。
 
-[星辰VPN官方注册入口](https://xc1.luniu8.com/?code=K6FEbDcS)
+[星辰VPN官方注册入口](https://a.wwaann.com/?s=xcvpn)
 
 如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 
